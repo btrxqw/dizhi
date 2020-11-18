@@ -1,4 +1,4 @@
-永久地址：https://www.btrxqw.com 最新地址：btr100.com
+永久地址：https://www.btrxqw.com 最新地址：http://btr100.com
 
 当你发现比特人星球地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
